@@ -226,4 +226,4 @@ Dragon City is available as a complete free version with all features unlocked a
 Dive into the world of Dragon City today! Download now and start building your dragon empire!
 
 ---
-**Last updated:** 2026-09-21 23:56:16 UTC
+**Last updated:** 2026-09-22 04:32:14 UTC
